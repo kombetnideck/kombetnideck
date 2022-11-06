@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @kombetnideck
 - 👀 I’m interested in making a project
-- 🌱 I’m currently learning i have never learned about programing at all
 - 💞️ I’m looking to collaborate on making a project
 - 📫 How to reach me contact me with my gmail account
 
